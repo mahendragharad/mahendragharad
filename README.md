@@ -1,4 +1,4 @@
-![logo](https://www.freepik.com/free-photo/rear-view-programmer-working-all-night-long_5698334.htm#query=coding%20background&position=16&from_view=keyword&track=ais)
+![logo](https://github.com/mahendragharad/Imp_banner/blob/main/Black%20and%20Red%20Gradient%20Professional%20LinkedIn%20Banner_loving.png)
 <h1 align="center">Hi 👋, I'm Mahendra Gharad</h1>
 <h3 align="center">""𝐁𝐂𝐀 𝐬𝐭𝐮𝐝𝐞𝐧𝐭 𝐩𝐚𝐬𝐬𝐢𝐨𝐧𝐚𝐭𝐞 𝐚𝐛𝐨𝐮𝐭 𝐝𝐚𝐭𝐚 𝐬𝐜𝐢𝐞𝐧𝐜𝐞, 𝐨𝐧 𝐚 𝐣𝐨𝐮𝐫𝐧𝐞𝐲 𝐰𝐢𝐭𝐡 𝐢𝐍𝐞𝐮𝐫𝐨𝐧.</h3>
 
